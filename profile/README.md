@@ -1,10 +1,10 @@
 # Paper Io Unblocked 2 Game 👋
 <h2>
 <a href="https://paper-io.xyz>CLICK TO PLAY PAPER.IO</a>
-
-<a href="https://paper-io2.xyz">CLICK TO PLAY PAPAER IO 2</a>
-
 </h2>
+## <a href="https://paper-io2.xyz">CLICK TO PLAY PAPAER IO 2</a>
+
+
 
 ### Exploring Paper.io Unblocked: A Gateway to Endless Fun
 
