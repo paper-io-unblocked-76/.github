@@ -4,6 +4,14 @@
 
 ## <a href="https://paper-io2.xyz">CLICK TO PLAY PAPAER IO 2</a>
 
+https://biologylesson.online
+
+https://lesson1.guru
+
+https://cookieclicker.blog
+
+https://huup.pages.dev
+
 </h2>
 
 
