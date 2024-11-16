@@ -1,16 +1,8 @@
 # Paper Io Unblocked 2 Game 👋
 <h2>
-<a href="https://paper-io.xyz">CLICK TO PLAY PAPER.IO</a>
+<a href="https://retro2.blog" tagret="_blank">CLICK TO PLAY PAPER.IO</a>
 
-## <a href="https://paper-io2.xyz">CLICK TO PLAY PAPAER IO 2</a>
-
-https://biologylesson.online
-
-https://lesson1.guru
-
-https://cookieclicker.blog
-
-https://huup.pages.dev
+<a href="https://paper-io2.xyz">CLICK TO PLAY PAPAER IO 2</a>
 
 </h2>
 
